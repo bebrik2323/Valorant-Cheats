@@ -4,7 +4,9 @@
 ![image](https://github.com/bebrik2323/Valorant-Cheats/assets/173284383/0d5f7fb2-fd08-44ac-9d1a-c838ee920fad)
 
 <b>A private cheat for playing Valorant without locks, with good functionality and an excellent price. This method for a valiant person will help you succeed with your fellow players.</b>
-YOU CAN DOWNLOAD IT IN RELEASE
+
+<b>YOU CAN DOWNLOAD IT IN RELEASE</b>
+
 <h2>AIMBOT</h2>
 
 Enable - enable
