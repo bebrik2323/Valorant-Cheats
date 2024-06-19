@@ -1,4 +1,4 @@
-# Valorant-Cheats
+# Valorant-Cheat
 <h1>Take Your Valorant Gameplay to New Heights with These Game-Breaking Cheats</h1>
 
 ![image](https://github.com/bebrik2323/Valorant-Cheats/assets/173284383/0d5f7fb2-fd08-44ac-9d1a-c838ee920fad)
